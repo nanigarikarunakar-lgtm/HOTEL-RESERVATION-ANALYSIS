@@ -1,1 +1,1 @@
-[Watch My Hotel Reservation Analysis Video](https://docs.google.com/presentation/d/12V1wIObNHdcA9ES9PvWNU2vRulhy2R9I/edit?usp=sharing&ouid=103923352602906113498&rtpof=true&sd=true)
+[Watch My Hotel Reservation Analysis Video](https://drive.google.com/file/d/1ztFC_9PBJF1xctO1u5u26nXZDi7z2omJ/view?usp=sharing)
